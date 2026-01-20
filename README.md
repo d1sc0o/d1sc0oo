@@ -1,2 +1,73 @@
-# d1sc0oo
-matching with my awesome trio ^^
+<div align=center>
+
+# $${\color{#abf9ad} ✦.⁺.✦.⁺.✦}$$
+
+
+
+
+
+$${\color{#abf9ad} ✦.⁺.✦.⁺.✦}$$
+
+![Static Badge](https://img.shields.io/badge/strawberry-strawberry?logo=gleam&logoColor=%23abf9ad&label=silly&labelColor=grey&color=%23f58295)
+
+
+
+
+$${\color{#f8c6db} ꒰꒰꩜ \space loony \space ! \space 𑁯ᰍ}$$
+
+$${\color{#f59cc2} ୨ৎ \space they \space / \space them \space :: \space he \space / \space she \space ✦.}$$
+
+
+
+
+
+
+<details>
+<summary> $${\color{#f483b1} ❀° \space about \space me \space !}$$ </summary>
+
+
+
+₊˚ ┊ bullet one
+
+
+₊˚ ┊ bullet two
+
+
+₊˚ ┊ bullet three
+
+  
+</details>
+
+<details>
+<summary> $${\color{#abf9ad} .꩜ \space dni \space ! }$$ </summary>
+
+
+₊˚ ┊ bullet one
+
+
+₊˚ ┊ bullet two
+
+
+₊˚ ┊ bullet three
+
+
+  
+</details>
+
+<details>
+<summary> $${\color{#82f484} ♫¸ \space extras \space !}$$ </summary>
+
+
+₊˚ ┊ bullet one
+
+
+₊˚ ┊ bullet two
+
+
+₊˚ ┊ bullet three
+
+</details>
+
+$${\color{#abf9ad} ✦.⁺.✦.⁺.✦}$$
+
+</div>
