@@ -79,10 +79,11 @@ $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \s
 ![sTXj281](https://github.com/user-attachments/assets/cf945993-5f62-40c7-9e9c-bef1f3907a8f)
 ₊˚ ┊ i loooove dandys world , dive , ^_^ , psychological + normal horror on rblx ! i also like slime rancher + pjsk (+more)
 
+$${\color{#f8c6db} matching \space with \space my \space awesome \space amazing \space trio \space ,, \space love \space you \space guys \space !!}$$
+
 </details>
 
 $${\color{#abf9ad} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
-$${\color{#f8c6db} matching \space with \space my \space awesome \space amazing \space trio \space ,, \space love \space you \space guys \space !!}$$
 
 </div>
