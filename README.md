@@ -20,7 +20,7 @@ $${\color{#abf9ad} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
 
 
-$${\color{#f8c6db} .𖥔 \space loony \space ! \space 𑁯ᰍ}$$
+$${\color{#f8c6db} .𖥔 \space loon \space ! \space 𑁯ᰍ}$$
 
 $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \space he \space / \space she \space ໒꒱ }$$
 
@@ -32,13 +32,19 @@ $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \s
 <summary> $${\color{#f483b1} ༉‧₊˚. \space about \space me \space !}$$ </summary>
 
 ![S83DLgq](https://github.com/user-attachments/assets/07a637a8-08dc-4503-9c12-c4fe7f644ee5)
-₊˚ ┊ bullet one
+₊˚ ┊ fictionkin ,, big looey kin
 
 ![S83DLgq](https://github.com/user-attachments/assets/07a637a8-08dc-4503-9c12-c4fe7f644ee5)
-₊˚ ┊ bullet two
+₊˚ ┊ 4teen
 
 ![S83DLgq](https://github.com/user-attachments/assets/07a637a8-08dc-4503-9c12-c4fe7f644ee5)
-₊˚ ┊ bullet three
+₊˚ ┊ multishipper , fav is berryfunny ^^
+
+![S83DLgq](https://github.com/user-attachments/assets/07a637a8-08dc-4503-9c12-c4fe7f644ee5)
+₊˚ ┊ i make gits 4 friends .... whisp if in need of git help
+
+![S83DLgq](https://github.com/user-attachments/assets/07a637a8-08dc-4503-9c12-c4fe7f644ee5)
+₊˚ ┊ i am not diagnosed w/ anything but there is something wrong with me. i am not able to get diagnosed due to my family.
 
   
 </details>
@@ -47,14 +53,16 @@ $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \s
 <summary> $${\color{#abf9ad} ⋆˚࿔ \space dni \space ! }$$ </summary>
 
 ![s4JE6dB](https://github.com/user-attachments/assets/8a8ee6b1-0b0d-4ae3-b8d9-515cf28dc498)
-₊˚ ┊ bullet one
+₊˚ ┊ pro + dark shippers
 
 ![s4JE6dB](https://github.com/user-attachments/assets/8a8ee6b1-0b0d-4ae3-b8d9-515cf28dc498)
-₊˚ ┊ bullet two
+₊˚ ┊ -11 and 17+ dniuid / friends
 
 ![s4JE6dB](https://github.com/user-attachments/assets/8a8ee6b1-0b0d-4ae3-b8d9-515cf28dc498)
-₊˚ ┊ bullet three
+₊˚ ┊ roleplay
 
+![s4JE6dB](https://github.com/user-attachments/assets/8a8ee6b1-0b0d-4ae3-b8d9-515cf28dc498)
+₊˚ ┊ religion forcers
 
   
 </details>
@@ -63,13 +71,13 @@ $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \s
 <summary> $${\color{#82f484} ⟡ ݁₊ \space extras \space !}$$ </summary>
 
 ![sTXj281](https://github.com/user-attachments/assets/cf945993-5f62-40c7-9e9c-bef1f3907a8f)
-₊˚ ┊ bullet one
+₊˚ ┊ my favorite color is yellow !
 
 ![sTXj281](https://github.com/user-attachments/assets/cf945993-5f62-40c7-9e9c-bef1f3907a8f)
-₊˚ ┊ bullet two
+₊˚ ┊ i enjoy art in general , mostly traditional + digital
 
 ![sTXj281](https://github.com/user-attachments/assets/cf945993-5f62-40c7-9e9c-bef1f3907a8f)
-₊˚ ┊ bullet three
+₊˚ ┊ i loooove dandys world , dive , ^_^ , psychological + normal horror on rblx ! i also like slime rancher + pjsk (+more)
 
 </details>
 
