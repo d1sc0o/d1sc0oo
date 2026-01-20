@@ -50,7 +50,7 @@ $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \s
 </details>
 
 <details>
-<summary> $${\color{#abf9ad} ⋆˚࿔ \space dni \space ! }$$ </summary>
+<summary> $${\color{#82f484} ⋆˚࿔ \space dni \space ! }$$ </summary>
 
 ![s4JE6dB](https://github.com/user-attachments/assets/8a8ee6b1-0b0d-4ae3-b8d9-515cf28dc498)
 ₊˚ ┊ pro + dark shippers
@@ -68,7 +68,7 @@ $${\color{#f59cc2} ˚˖𓍢ִ໋`: \space they \space / \space them \space :: \s
 </details>
 
 <details>
-<summary> $${\color{#82f484} ⟡ ݁₊ \space extras \space !}$$ </summary>
+<summary> $${\color{#f8c6db} ⟡ ݁₊ \space extras \space !}$$ </summary>
 
 ![sTXj281](https://github.com/user-attachments/assets/cf945993-5f62-40c7-9e9c-bef1f3907a8f)
 ₊˚ ┊ my favorite color is yellow !
