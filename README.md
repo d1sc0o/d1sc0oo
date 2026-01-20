@@ -1,5 +1,8 @@
 <div align=center>
 
+<img width="1265" height="269" alt="2026_01_20_0mn_Kleki" src="https://github.com/user-attachments/assets/af77d9e7-3a59-4747-8506-c116cd5f46ab" />
+
+
 # $${\color{#abf9ad} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F483B1&width=435&lines=%E3%82%9BHow+could+I+ever+miss+..%E3%82%9B;%E3%82%9BSomething+that+I've+never+had+%3F%E3%82%9B)](https://git.io/typing-svg)
