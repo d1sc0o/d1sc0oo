@@ -85,5 +85,7 @@ $${\color{#f8c6db} matching \space with \space my \space awesome \space amazing 
 
 $${\color{#abf9ad} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hsbem7d4z3c52hbng2brgkl2lq&cover_image=true&theme=spotify-embed&show_offline=false&background_color=ad5252&interchange=false&profanity=false&bar_color=fd9bd4&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+
 
 </div>
